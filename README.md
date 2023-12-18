@@ -1,8 +1,9 @@
 - 👋 Hi, I’m @Hibonuuraboxing
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👀 I’m interested in ...fallow and vies tikto hibo_nuura_boxing
+- 🌱 I’m currently learning ... how to send feek gift in live tiktok
+- 💞️ I’m looking to collaborate on ...feek gfts
+- 📫 plz fallow me on my tiktokhibo_nuura_boxing
+
 
 <!---
 Hibonuuraboxing/Hibonuuraboxing is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
